@@ -28,4 +28,4 @@
 
 ## Контакты
 
-Для вопросов и предложений пишите на [email@example.com].
+[chennikita70@gmail.com]
